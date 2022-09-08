@@ -7,3 +7,5 @@
 # so i'm much motivate
 
 # first lecture was much interesting
+
+# also teacher presented us interesting lecture material (ra davwero ar vici :) :)
